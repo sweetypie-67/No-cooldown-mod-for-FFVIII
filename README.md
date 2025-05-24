@@ -1,0 +1,1 @@
+# No-cooldown-mod-for-FFVIII
